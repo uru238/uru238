@@ -3,3 +3,10 @@
 
 I am a learning designer (science educator/science communicator) .
 I design science learning and outreach activities.
+
+- [Website](https://ufmy.net/)
+- [Note](https://note.com/uru__/)
+- [Twitter](https://twitter.com/uru_)
+- [Instagram](https://www.instagram.com/uru__)
+- [Facebook](https://www.facebook.com/fumiya.urushibata)
+- [Pinterest](https://www.pinterest.jp/uru__/)
